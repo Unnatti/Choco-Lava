@@ -1,2 +1,1 @@
-# Choco-Lava
-cup cake with yummy melted chocolate
+This recipe is about a cup cake which has melted chocolate inside it and when you cut it you get a spoon of yummy melted chocolate.

@@ -1,0 +1,1 @@
+First take a aluminium foil and a glass. Then fold the foil into 4. Yhen put the folded foil on the glass and press it from all sides, You will se that some of the foil is popping out so you will have to fold them in right side direction and it will have a shape some what like a triangle. And your mold is perfectly ready
